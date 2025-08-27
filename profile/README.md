@@ -47,5 +47,5 @@ Whether you’re a developer, designer, communicator, or just curious about AI �
 
 Stay tuned for upcoming events, project opportunities, and ways to get involved.
 
-📧 Contact: @aiforgood.org  
+📧 Contact: youngaileaders.montevideo@gmail.com 
 🌐 Learn more: [AI for Good Global Initiative](https://aiforgood.org)
